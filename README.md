@@ -15,6 +15,6 @@
 # Поддержать 💖
 
 можно нас поддержать если подпишитесь на @hayrulla004004 на Rutube https://rutube.ru/channel/48673749/ или на Roblox: https://www.roblox.com/users/4148493626/profile @hayrulla004004
-хотите сильно поддержать? купите наш геймпасс в roblox
-45 робуксов: https://www.roblox.com/game-pass/2058011442/45
-190 робуксов: https://www.roblox.com/game-pass/2056979531/190
+## хотите сильно поддержать? купите наш геймпасс в roblox
+## 45 робуксов: https://www.roblox.com/game-pass/2058011442/45
+## 190 робуксов: https://www.roblox.com/game-pass/2056979531/190
